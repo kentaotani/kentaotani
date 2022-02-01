@@ -1,1 +1,0 @@
-KENTA OTANI
